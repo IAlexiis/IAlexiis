@@ -2,7 +2,7 @@
 - 👀 I’m interested in DEVELOPPING
 - 🌱 I’m currently learning few HARD things !!
 - 💞️ I’m looking to collaborate on exciting projects
-- 📫 How to reach me : alexis.m101915@gmail.com | 07 64 85 12 43
+- 📫 How to reach me : alexis.m101915@gmail.com
 - 😄 Pronouns: Alexizo
 - ⚡ Fun fact: I'm an excellent brainstormer when I take 100 steps
 
